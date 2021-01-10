@@ -1,0 +1,1 @@
+1packet maggi and some water and a bowl in which u can cook on

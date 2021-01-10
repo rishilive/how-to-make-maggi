@@ -1,0 +1,1 @@
+let the water boil for like 5 minutes open the packet of maggi break it into two put it in the boiling water then put the spices you get with it wait for around 3 minutes and it will be ready 
